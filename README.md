@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with vayyy
 - 📫 How to reach me : alfinrahmadfauzi300@gmail.com
 - 😄 Pronouns: Call me Alfin ;)
-- ⚡ Fun fact: I'm only beginner progammer
+- ⚡ Fun fact: I'm software engineer
 
 <!---
 AlfinRF1/AlfinRF1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
