@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning Polytechnic State Jember PSDKU Nganjuk
 - 💞️ I’m with vayala MS.
 - 📫 How to reach me : alfinrahmadfauzi300@gmail.com
-- 😄 Pronouns: Call me Alfin
+- Location: Kediri, East Java
